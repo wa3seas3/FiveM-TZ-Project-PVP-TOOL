@@ -1,7 +1,7 @@
 
 # FiveM TZ Project | PVP TOOL 👑
 
-# 📁[𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://shorturl.at/jmL12)
+
 
 ## FiveM TZ Project FiveM Exclusive to RP, PVP, Glife Players, Troll we offer features like aimbot, warp vehicle, radar, player list, friends list, and a plethora of customization options. Elevate your gameplay with TZ!
 
